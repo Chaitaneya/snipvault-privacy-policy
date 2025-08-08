@@ -1,0 +1,1 @@
+# snipvault-privacy-policy
